@@ -1,0 +1,2 @@
+# HailuoAIFree
+Hailuo AI Free
